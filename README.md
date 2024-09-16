@@ -10,6 +10,4 @@ Meu nome é Manoel Antonio
 
 00001113977863sp@al.educacao.sp.gov.br
 
-Twitter: @ghostrixity
-
 ![](https://media1.tenor.com/m/aYOYlFnh6esAAAAC/geto-suguru-jujutsu-kaisen.gif)
